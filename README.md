@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Eltonsean69
-- 👀 I’m interested in learning
-- 🌱 I’m currently learning interests
+- 👀 I’m interested in some things
+- 🌱 I want to sleep
 - 💞️ I’m looking to collaborate on learning and interests
 - 📫 You do not need to reach me
 
